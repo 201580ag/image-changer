@@ -1,3 +1,4 @@
+![image](https://github.com/201580ag/image-changer/assets/39054577/f3304687-a786-488d-9b9b-0efa2f86f74f)
 
 # **면책 조항(Disclaimer)**
 ### English
